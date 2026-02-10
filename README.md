@@ -6,8 +6,14 @@
 <br> <br> <div align="center">
   > ꜰʟᴜꜰꜰɪ/ᴋᴜʀᴜ (ᴀʟᴛᴇʀɴᴀᴛɪᴠᴇʟʏ "ᴅᴀɴᴛᴇ" ɪꜰ ʏᴏᴜ ᴘʀᴇꜰᴇʀ) <br>
   > ꜰᴇʟʟᴏᴡ ᴇɴᴊᴏʏᴇʀ ᴏꜰ ᴘᴍᴏᴏɴ ɢᴀᴍᴇꜱ.. ᴀɴᴅ ᴍᴀɴʏ ᴏᴛʜᴇʀꜱ <br>
+  <br>
   <details>
 <summary> 𝚋𝚎𝚏𝚘𝚛𝚎 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚗𝚐 </summary>
-very shy!! pls approach first | often off tab/semi-afk, w2i
+very shy!! pls approach first  |  often off tab/semi-afk, w2i
 </details>
-<div align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXp0aW1rZTNidm5ja3dnOTRmeGlxaGdmbXhxNmVueWZ3OTFvOGh3YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eJAfMEuOcc70uI4X9r/giphy.gif" width=30 height=30> ── ᴍᴇʟᴛ ᴅᴏᴡɴ ᴛʜᴇ ꜱᴇᴠᴇʀᴇᴅ ᴄʜᴀɪɴ ᴀɴᴅ ʀᴇꜰᴏʀɢᴇ ɪᴛ ɪɴ ᴛʜᴇ ʀᴏᴀʀɪɴɢ ᴋɪʟɴ ᴏꜰ ᴏɴᴇ'ꜱ ʜᴇᴀʀᴛ. ,, <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbnAyZ2hrZzF2cHFpcHppc2syY205NDg2Z3RuazFmZWtpZGdmbHRpeSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9zMEPo41UJGuWA57Xj/giphy.gif" width=30 height=30>
+<details>
+<summary> 𝚍𝚗𝚒 </summary>
+14 below, 15 on thin ice js in case u didn't read my bio  |  basic dni criteria  |  js don't be weird ok? ok.
+</details>
+<div align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXp0aW1rZTNidm5ja3dnOTRmeGlxaGdmbXhxNmVueWZ3OTFvOGh3YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eJAfMEuOcc70uI4X9r/giphy.gif" width=30 height=30> ── ᴍᴇʟᴛ ᴅᴏᴡɴ ᴛʜᴇ ꜱᴇᴠᴇʀᴇᴅ ᴄʜᴀɪɴ ᴀɴᴅ ʀᴇꜰᴏʀɢᴇ ɪᴛ ɪɴ ᴛʜᴇ ʀᴏᴀʀɪɴɢ ᴋɪʟɴ ᴏꜰ ᴏɴᴇ'ꜱ ʜᴇᴀʀᴛ. ,, ︵ֺ︵  𝜚 <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnRlaXR5MjN4ejdiMHp1cHN2dDhhbWFheG8wOGpvZDVyaXRlZnR1ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/u2swCDATsZvih5HFmB/giphy.gif" width=40 height=40>
+<br> <br> <br> <i>ɴᴏ ᴄᴀʀʀᴅ ʏᴇᴛ... | ᴅᴏ ɪ ʜᴀᴠᴇ ᴇɴᴏᴜɢʜ ʙʀᴀɪɴᴘᴏᴡᴇʀ ᴛᴏ ᴍᴀᴋᴇ ᴀ ꜱᴛʀᴀᴡᴘᴀɢᴇ...</i>
