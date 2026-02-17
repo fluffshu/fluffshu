@@ -18,4 +18,4 @@ very shy!! pls approach first  |  often off tab/semi-afk, w2i
 <div align="center"> <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXp0aW1rZTNidm5ja3dnOTRmeGlxaGdmbXhxNmVueWZ3OTFvOGh3YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eJAfMEuOcc70uI4X9r/giphy.gif" width=30 height=30> ── ᴍᴇʟᴛ ᴅᴏᴡɴ ᴛʜᴇ ꜱᴇᴠᴇʀᴇᴅ ᴄʜᴀɪɴ ᴀɴᴅ ʀᴇꜰᴏʀɢᴇ ɪᴛ ɪɴ ᴛʜᴇ ʀᴏᴀʀɪɴɢ ᴋɪʟɴ ᴏꜰ ᴏɴᴇ'ꜱ ʜᴇᴀʀᴛ. ,, ︵ֺ︵  𝜚 <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnRlaXR5MjN4ejdiMHp1cHN2dDhhbWFheG8wOGpvZDVyaXRlZnR1ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/u2swCDATsZvih5HFmB/giphy.gif" width=40 height=40>
 <br> <br>
 
-<i>ɴᴏ ᴄᴀʀʀᴅ ʏᴇᴛ... | [ᴀᴛᴀ](https://fluffi.atabook.org/) | [ꜱᴛʀᴀᴡᴘᴀɢᴇ (ᴡɪᴘ)](https://dantedurante.straw.page/)</i>
+<i>ɴᴏ ᴄᴀʀʀᴅ ʏᴇᴛ... | [ᴀᴛᴀ](https://fluffi.atabook.org/) | [ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://dantedurante.straw.page/)</i>
